@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ibs189
 - 👀 I’m interested in machine learning, books, and anything mathematics
-- 🌱 I’m currently learning anything that'd will make me a better person than the day before
+- 🌱 I’m currently learning anything that will make me a better person than the day before
 - 💞️ I’m looking to collaborate on anything that'd will propel the course of humanity
 - 📫 Find me here https://www.linkedin.com/in/ebrima-y-jallow/ && https://www.facebook.com/ibrahim.jallow2/ && https://twitter.com/IbrahimJallow6 && https://www.instagram.com/ibrajal/
 
